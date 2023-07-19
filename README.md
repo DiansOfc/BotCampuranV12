@@ -14,3 +14,8 @@ males mau ngedit? sini gua editin 4k aja bro
 mau tambah list topup/ pulsa kuota? pm aja ya
 
 wa ae
+
+
+NOTE!
+
+SC INI FREE YA TOD JANGAN DI JUAL SEMOGA YANG JUAL SC INI KAKI NYA LUMPUH,CACAT,YATIM,OTAK NYA ILANG!!!!
